@@ -1,7 +1,6 @@
 # darkpower199.github.io
 <html>
 <head>
-<title>S-21-5r</title>
 <body><center>
 <strong><hl style="color:#9400D3">BY &#128156;CHILL_WAYNE&#128156;<strong><hl>
 <center>
